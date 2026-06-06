@@ -10,7 +10,8 @@ credits to the amazing : mliozvueki
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
  
- ### If you ghost me im blocking you thanks
+ ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
+ i dont play about that deadass so dont be weird idc if this is corny thanks
 
  ### i block easily 
  the rest is in my strawpage
