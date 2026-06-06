@@ -10,7 +10,7 @@ credits to the amazing : mliozvueki
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
  
- ### I dont like being getting ghosted
+ ### If you ghost me im blocking you thanks
 
  ### i block easily 
  the rest is in my strawpage
