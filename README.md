@@ -35,4 +35,5 @@ me first because sometimes im too busy or distracted
 
 I latch onto people quickly when we become friends, theres exceptions
 
-## Inspos are appreciated,  im glad someone likes my style (skin)
+## Inspos are appreciated,  im glad someone likes my style
+by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
