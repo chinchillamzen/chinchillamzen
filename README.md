@@ -6,6 +6,7 @@
 
 # Rens INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
+ # i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 ## hellooo im ren this is stuff about me okay thanks
 credits to the amazing : mliozvueki
 ## Caution .ᐟ
@@ -23,8 +24,6 @@ credits to the amazing : mliozvueki
  
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
-
- # i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 
 if we end up sitting in a group i might move, yes you can joke about it
 
