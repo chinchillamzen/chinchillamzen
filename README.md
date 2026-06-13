@@ -1,4 +1,5 @@
 ![imagealt](https://files.catbox.moe/dkq81q.png)
+https://img.shields.io/badge/just%20the%20message-8A2BE2
 
 
 𝘪 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦 𝘪𝘥 𝘭𝘰𝘰𝘬 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘦𝘺𝘦 . . . ♡ 
