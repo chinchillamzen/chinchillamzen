@@ -1,4 +1,4 @@
-
+![Static Badge](https://img.shields.io/badge/mzen%20fan%20since%202023-b2a2a2)
 ![imagealt](https://files.catbox.moe/dkq81q.png)
 
 
